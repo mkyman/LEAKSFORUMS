@@ -1,6 +1,6 @@
 # LEAKSFORUMS
 
-<a href="https://ibb.co/NnJP3fhb"><img src="https://i.ibb.co/NnJP3fhb/Ej-rcito-Romano-Recuperado.png" alt="Ej-rcito-Romano-Recuperado" border="0"></a>
+<a href="https://ibb.co/NnJP3fhb"><img src="https://i.ibb.co/x8B0swvd/Ej-rcito-Romano-Recuperado.png" alt="Ej-rcito-Romano-Recuperado" border="0"></a>
 
 ## Leaks from hacker forums 
 
